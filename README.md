@@ -1,9 +1,11 @@
 
   𓏲ּ𝄢 <img width="400" height="67" alt="tumblr_6f4cdc6c974b883930ee6e5f6faae4d8_ef5809eb_400" src="https://github.com/user-attachments/assets/32cb447a-3d74-42f8-ac1d-d9d89d579ed6" /> 𓏲ּ𝄢
 
+  ![sigzai-sigma](https://github.com/user-attachments/assets/1952e284-5423-4aa6-9a6e-45ad8c9db4e2)
+
+
 ![GitHub Views](https://komarev.com/ghpvc/?username=doiizai&amp;color=452a20&amp;style=flat&amp;label=☕)
 
-![sigzai-sigma](https://github.com/user-attachments/assets/1952e284-5423-4aa6-9a6e-45ad8c9db4e2)
 
 <img width="400" height="38" alt="tumblr_a48bd53a6be7649d0e8e8881ac375097_e88fec08_400" src="https://github.com/user-attachments/assets/ae8a3aef-b472-4544-bc93-795e5684c68d" />
 
