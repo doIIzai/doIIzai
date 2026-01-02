@@ -5,9 +5,10 @@
 
 ![sigzai-sigma](https://github.com/user-attachments/assets/1952e284-5423-4aa6-9a6e-45ad8c9db4e2)
 
+<img width="400" height="38" alt="tumblr_a48bd53a6be7649d0e8e8881ac375097_e88fec08_400" src="https://github.com/user-attachments/assets/ae8a3aef-b472-4544-bc93-795e5684c68d" />
 
  
-  ⨾𓍢ִ໋ WIP˚˖𓍢ִ໋❀ <img width="100" height="300" alt="tumblr_7ad64808f95dec676e0f5e133f8d183d_a840afeb_500" src="https://github.com/user-attachments/assets/db2cf3d5-2709-450f-929e-449696339faf" />
+‎ ⨾𓍢ִ໋ WIP˚˖𓍢ִ໋❀ <img width="100" height="300" alt="tumblr_7ad64808f95dec676e0f5e133f8d183d_a840afeb_500" src="https://github.com/user-attachments/assets/db2cf3d5-2709-450f-929e-449696339faf" />
 
 
 
