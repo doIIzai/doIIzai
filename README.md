@@ -1,7 +1,7 @@
 
   𓏲ּ𝄢 <img width="400" height="67" alt="tumblr_6f4cdc6c974b883930ee6e5f6faae4d8_ef5809eb_400" src="https://github.com/user-attachments/assets/32cb447a-3d74-42f8-ac1d-d9d89d579ed6" /> 𓏲ּ𝄢
 
-![GitHub Views](https://komarev.com/ghpvc/?username=doIIzai&color=b9bcc0)
+![GitHub Views](https://komarev.com/ghpvc/?username=doiizai&amp;color=452a20&amp;style=flat&amp;label=☕)
 
 ![sigzai-sigma](https://github.com/user-attachments/assets/1952e284-5423-4aa6-9a6e-45ad8c9db4e2)
 
